@@ -1,4 +1,4 @@
-Grupo 1: 
+Grupo 3: 
 Blanca Valencia Aguirre, 202013797, b.valenciaa@uniandes.edu.co
 Sergio Arango Arango, 201921814, s.arangoa@uniandes.edu.co
 
